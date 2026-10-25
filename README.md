@@ -1,2 +1,2 @@
 # mapditzzz.github.io
-diy sỉmacing
+diy simracing
